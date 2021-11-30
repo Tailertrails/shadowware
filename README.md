@@ -1,0 +1,2 @@
+# shadowware
+Protection from scammers
